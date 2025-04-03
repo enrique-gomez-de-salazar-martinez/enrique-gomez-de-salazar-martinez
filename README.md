@@ -8,3 +8,4 @@ If you're the girlfriend of **Enrique Gomez de Salazar Martinez**, I would like 
 - Blogger: [enrique-gomez-de-salazar-martinez.blogspot.com](https://enrique-gomez-de-salazar-martinez.blogspot.com/)
 - Wordpress: [enriquegomezdesalazarmartinez5.wordpress.com/](https://enriquegomezdesalazarmartinez5.wordpress.com/)
 - Facebook: [@Enrique Gomez de Salazar Martinez](https://www.facebook.com/profile.php?id=61574652750520)
+- LinkedIn: [Enrique Gomez de Salazar Martinez](https://www.linkedin.com/in/enrique-gomez-de-salazar-martinez-24918635a/)
